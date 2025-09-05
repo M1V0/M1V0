@@ -1,1 +1,1 @@
-Matthew Ivory, PhD Researcher at Lancaster University.
+Matthew Ivory, Senior Research Associate at Lancaster University.
